@@ -1,3 +1,3 @@
 <h1>
-Compre Bitcoin!!!! To the moon!!! so pra confirmar!
+Compre Bitcoin!!!! To the moon!!!
 </h1>
